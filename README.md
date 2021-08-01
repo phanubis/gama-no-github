@@ -1,0 +1,1 @@
+O curso tem muito conteúdo que vale a pena estudar e está sendo ótimo pra mim.
